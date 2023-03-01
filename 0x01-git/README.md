@@ -1,1 +1,1 @@
-amine azemour data analyst
+amine azemour data scientist
